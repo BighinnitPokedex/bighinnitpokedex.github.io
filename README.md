@@ -1,1 +1,1 @@
-# bighinnitpokedex.github.io
+# wiki
